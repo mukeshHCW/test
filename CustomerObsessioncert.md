@@ -6,4 +6,5 @@ For outstanding dedication and excellence in the category of
 **Customer Obsession**
 
 [EEG - Microsoft]
+
 [Date]
